@@ -4,7 +4,7 @@
 
 
 
-- 🔭 I’m currently study at **University of Information Technology**
+- 🔭 I’m currently study at **University of Information Technology - VNUHCM**
 
 - 🌱 My major is **Computer Engineering**
 
