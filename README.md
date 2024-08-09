@@ -8,11 +8,8 @@
 
 - 🌱 My major is **Computer Engineering**
 
-- 💬 Ask me about **anything**
-
 - 📫 How to reach me **phungminhchi2005@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
